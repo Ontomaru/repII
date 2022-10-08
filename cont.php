@@ -1,0 +1,1 @@
+delayu vse po shablonu.
